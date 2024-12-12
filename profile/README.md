@@ -4,8 +4,6 @@
 
 ## [Descargar PVZ Fusion 2.1.6 APK oficial ahora](https://spoo.me/dXGZFB)
 
-<img width="512" alt="plants-vs-zombies-fusion-edition-4" src="https://github.com/user-attachments/assets/32dbf143-8c55-437d-af48-186bb65649e5" />
-
 ### Introducción: Un Nuevo Capítulo en la Saga de PVZ
 
 Plants vs Zombies ha sido más que un simple juego móvil; ha sido un fenómeno cultural que ha definido una generación de jugadores casuales y estrategas. PVZ Fusion 2.1.6 no es simplemente una actualización, sino una transformación completa que lleva la experiencia de juego a dimensiones nunca antes imaginadas.
